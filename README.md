@@ -1,2 +1,2 @@
 # Anonfile-Uploader
-Upload your file fast with this script
+https://media.discordapp.net/attachments/977706694903746641/978744664381341787/tmix.jpg
